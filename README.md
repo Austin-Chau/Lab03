@@ -8,5 +8,5 @@ Read even more words here.
 
 Austin Chau
 
-Jayce Meyer editing
+Partner Jayce Meyer editing
 
